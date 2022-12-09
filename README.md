@@ -89,4 +89,4 @@ kyshin/kishaky was here! Thank you for the course. :-)
 
 MM was here. Great work on the course!
 
-Disco Santa was here! :P
+Santa was here! :P

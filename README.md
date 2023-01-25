@@ -89,3 +89,4 @@ kyshin/kishaky was here! Thank you for the course. :-)
 
 MM was here. Great work on the course!
 
+Polar was here :), damn Stephen, thanks for the grat courses, and Joel and Ellie are the best characters!!

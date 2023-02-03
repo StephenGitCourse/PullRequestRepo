@@ -89,4 +89,4 @@ kyshin/kishaky was here! Thank you for the course. :-)
 
 MM was here. Great work on the course!
 
-Where is this quote from?  "And you sir, are a steelie eyed missle man" 
+What movie is this quote from?  "And you sir, are a steelie eyed missle man"

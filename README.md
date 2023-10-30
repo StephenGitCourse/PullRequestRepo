@@ -139,4 +139,6 @@ Hatt was here. Thanks for showing me how to use Git. Keep up the good work :]
 
 Nikita was here! *-) Thanks for your lessons Stephen!
 
+Travis C. was here! I first found your courses 5 years ago and am finally getting through them all now that I have some free time. Thank you!
+
 

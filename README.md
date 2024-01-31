@@ -37,7 +37,7 @@ Kringlan was here
 
 Punpun was here!! .W.
 
-zenler was here! c;
+zenler was here! c;  
 
 Kaito was here! (✌ﾟ∀ﾟ)
 
@@ -139,4 +139,4 @@ Hatt was here. Thanks for showing me how to use Git. Keep up the good work :]
 
 Nikita was here! *-) Thanks for your lessons Stephen!
 
-
+hj was here, Thanks for the course :)

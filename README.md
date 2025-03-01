@@ -139,4 +139,4 @@ Hatt was here. Thanks for showing me how to use Git. Keep up the good work :]
 
 Nikita was here! *-) Thanks for your lessons Stephen!
 
-
+Lego was here! Awsome course, thanks a million. 

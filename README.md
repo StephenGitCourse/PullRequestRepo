@@ -139,4 +139,11 @@ Hatt was here. Thanks for showing me how to use Git. Keep up the good work :]
 
 Nikita was here! *-) Thanks for your lessons Stephen!
 
+Rob here and I find it quiet queer that no one tried to be funny.
+I looked up and down and all around, and everyone seems, quite sunny.
+But It seems the funny bones are made of stones, and though the praise is well deserved.
+I know he'll deny it but Stephen was excited to hear all things absurd.
+So I'm sending a shout to all those about, to post a new message here.
+If it's not funny that's fine, but take your time, because it better be weird.
+
 

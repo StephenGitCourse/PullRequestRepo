@@ -139,4 +139,5 @@ Hatt was here. Thanks for showing me how to use Git. Keep up the good work :]
 
 Nikita was here! *-) Thanks for your lessons Stephen!
 
+There's a dev with code skills so clear, Who commits to repos each year, With Unreal they create, Games that are first-rate, "I AM HERE!" echoes loud for all to hear!
 

@@ -136,6 +136,7 @@ Sam Was Here ...
 Asimantos was here! This is really an unreal cool course
 
 Hatt was here. Thanks for showing me how to use Git. Keep up the good work :] 
+Flynn was here. This Course really helped a lot!!! :P
 
 Nikita was here! *-) Thanks for your lessons Stephen!
 
